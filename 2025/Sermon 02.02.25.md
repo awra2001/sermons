@@ -1,0 +1,44 @@
+02.02.25
+As I begin this morning, I look around and see each of you.  And as I do so and often do each week, I recount your stories and your lives as I’ve known them.  It is the joy and burden in equal measure of the pastor to hold each spirit and life in tender care, to be demanded the audacious task of stewardship of the soul.
+
+As Jessica noted last week, stories can move us. Pieces of art, she noted, “call forth something in us that we have not encountered before and send us forth into the world as people changed, even if only a hair.”  This is the reality of every interaction: there is always a creator, a receiver, and the work that happens in the middle. In the middle, meaning is made, and we are shaped by that new meaning. 
+
+When I reflect on each of you, as my silent prayers are offered to our God that this time may be a fragrant sacrifice, pleasing to God, I’m often struck by how we sit as a body together. We have each contributed to the shape of something lovely when we gather. It reminds me of the Psalmists as they sing the ascents: “How very good and pleasant it is when kindred live together in unity!”
+
+That unity is not forged by our sameness: far from it.  At the core of our Presbyterian Heritage, written into our very foundations over centuries, is the need for mutual forbearance: differing discernment in good faith is honored.
+
+Nor is that unity forged by shared allegiances: be it politics, personality, or ideological preference, we move beyond toleration but celebration thatz we are indeed a people gathered from corners of the world, here gathered.
+
+Finally, it’s not due to stubborn anchoring into one time and one way of doing: we are a living image of _Ecclesia reformata, semper reformanda secundum verbum Dei._ The church reformed, always being reformed, according to the Word of God.
+
+So what may, then, be the source of goodness and pleasantry that allows us our unity?  I humbly offer to you that each of these can only have their shape and function as they do in the body of Christ because of love.  Saying it to you now almost feels too simple, too obvious.  But given enough time, we know that the most simple responses expose far greater depth.  This love offers the benefit of good faith, celebrates the whole of God’s created people, and scribed within each letter of God’s Word to us and for us: God’s love to us, God’s love for us, God’s love offered to all.  Each superlative of Paul’s exhortation to the church in Corinth cannot solely be aspirational.  Instead, they must be imbued into every word, deed, and action should we live in holy communion.
+
+It was that love that Jesus spoke of as he unrolled the scroll of Isaiah, taking upon the audacious task of soul stewardship himself, and proclaimed the year of the Lord’s favor.  He spoke the prophet’s words, and for those in the synagogue, they must have sounded sweet.  They had held fast and been carried by the promises of God.  But almost as quickly as they had relished in the promise of the story, Jesus exposed more: the story that shaped them demanded reform: now, it wasn’t just the expected recipients that received the promise, but it was the Gentile as well.  The simple invitation to hear God’s expectation - that God’s promises expand to the alien and others in their midst - sends the people into rebellion.  Luke invites us in the Greek to witness a nostril-flaring, seething rage.  There is no longer mutual forbearance, no celebration of shared difference, *reformada* is long gone.  Love lost in white-hot, blinding fury, God’s love in human form is sent to the cliff.
+
+This fury was so blinding that Jesus found his way through the crowd and walked away. This reality is equal parts astounding and frightening: that when God’s beloved remove love and begin to clang, Jesus will slip from their midst, onto the place where the Mission will be revealed and done, despite human protestation.
+
+As Paul denotes, even the lofty optimism of faith and hope can be lost without this love.  Faith will wain, hope degrade, but what sustains and replenishes each is love.  But, it seems Jesus will not linger if the response to receive and offer that love is a resounding “no,” evidenced so clearly by the Nazirite synagogue: do you see any of I Cor 13 in the actions of the crowd?
+
+This story is more prescient than ever. Suppose soul stewardship is a worthy end, then it must be the task of any of us who have been called to the pastoral task - which, indeed, as we understand it, includes each of us - to sound an alarm that our current moment will offer the allures of rage, difference, divide, and belief that God’s love doesn’t extend to the Gentile.  Cries for mercy for all of God’s beloved will be met with craven anger because it is far too easy to conform God’s expectations to ours and not the other way around.  Should we give in to that, we deny ourselves audience with the one proclaiming sight to the blind, freedom for the captives, and restoration to all.  When Jesus walks on, there will be no one else to blame.
+
+Unwritten into the story in Luke, left to our imagination, however, are those who did not lose their sight and may well slipped out with the Lord from the cliff that day.  Who followed love’s lead and let the story shape them.  Who saw the truth in Joesph’s son continued in good faith.  The reward?  Well, it was everything Jesus said would happen.  We need not turn many pages in Luke to see it all happen.  Whoever held love and chose to follow Christ found the year of the Lord’s favor all around them - even if with the Gentile.
+
+It is not a far stretch to say this beloved community, so very good and very pleasant, is a remnant of those still grounded by love.  And the Lord abides with them even still while always leaving the door open for a change of heart and return to love.  Such are the promises in each letter of the word made flesh, dwelling among us.
+
+The question before us, friends, is, “Will we love?”  This is not a question asked flippantly. Will we choose patience and kindness and eschew the need to lust after others’ good fortune?
+
+Will we not allow our chests to be puffed out, be untoward?  Will we not scheme to tip the scales to our advantage?  
+
+When it is most challenging, will we not be provoked and not keep a score of what is done wrong?
+
+Instead, will we unflinchingly seek justice - right doing amongst all God's beloved, and celebrate when the world conforms to dependable reality?  
+
+If we can do so, dear beloved, we preserve what is good and pleasant because we love.  And when others ask who we are, we can say without hesitation that we are a people who chose not to run our Savior off the cliff.
+
+In closing, I offer a portion of the Rev. Dr. Martin Luther King’s address to the Commission on Ecumenical Missions and Relations of the United Presbyterian Church USA, our forebearers.  Entitled “Paul’s Letter to American Christians,” it was delivered in Pittsburgh in 1958, and King imagined and read a letter offered to them from antiquity.  
+
+ But just before leaving, I must say to you, as I said to the church at Corinth, that I still believe that love is the most durable power in all the world… What is the \_summum bonum\_ of life? I think I have an answer, America. I think I have discovered the highest good. It is love. This principle stands at the center of the cosmos. As John says, “God is love.” And so he who loves is a participant in the being of God. He who hates does not know God.
+
+ So the greatest of all virtues is love. This is the thing that kept the early church moving. This is the thing that kept us moving amid the days of persecution around the Greco-Roman world. Men and women would look at us and cry out, “What is it that makes you so happy? Is it in your ecclesiastical machinery?” And we could answer, “No.” “Is it in your dogmas? Is it in your creeds?” And we could answer, “No.” “What is it then?” We could cry out, “We are happy because we have passed from death unto life.” “Why?” “Because we love; that is it.” This is the thing that must keep the church moving, and America, let me say to you that this is the meaning of the cross. That event on Calvary is more than a meaningless drama that took place on the stage of history. It is a telescope through which we look out into the long vista of eternity and see the love of God breaking forth into time. It is an eternal reminder to a power-drunk generation that love is a most durable power in the world and that is, at bottom, the heartbeat of the moral cosmos. Only through achieving this love can you expect to matriculate into the university of eternal life.
+ 
+This is the letter, and now comes the living of it.

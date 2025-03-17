@@ -1,0 +1,64 @@
+# All For What?
+### Amos 7:7-15; Psalm 85:8-13; Ephesians 1:3-14; Mark 6:14-29
+
+We are people of story.  When we help one other understand who we are and the world that we witness, we often do it through story.  When I talk to people about Old Stone, I don’t often start with the dimensions of the sanctuary or the technical aspects of its design.  No, usually, I’m telling stories of who each of you are - perhaps even in relation to the building.  The sanctuary feels warm because of the folks inside of it.  We tell stories of experiences, not of objective measure.  
+
+Sometimes our stories bring us joy.  Sometimes they wound us.  This is, no doubt, the reality of our lives as Christian people.  Our Scriptures are full of painful moments.  Violent moments.  The stories of terrible, atrocious things.  This is because as much as Scripture is a story about God, it’s a story about humanity, as well.  So we learn a little more of our story.
+
+Now, of course, we could skip days like today where we witness the beheading of John to Baptist to something more sunny.  But I find myself convicted to preach the lectionary and sometimes preach on difficult passages because to not attend to the wounds within our story is to invite infection and festering, far more fatal than exposing it and caring for that wound with the balm of community.  
+
+With this in mind, then, let us attend to this story, found in the gospel according to Mark:
+
+Mark 6:14-29
+6:14 King Herod heard of it, for Jesus' name had become known. Some were saying, "John the baptizer has been raised from the dead; and for this reason these powers are at work in him."
+6:15 But others said, "It is Elijah." And others said, "It is a prophet, like one of the prophets of old."
+6:16 But when Herod heard of it, he said, "John, whom I beheaded, has been raised."
+6:17 For Herod himself had sent men who arrested John, bound him, and put him in prison on account of Herodias, his brother Philip's wife, because Herod had married her.
+6:18 For John had been telling Herod, "It is not lawful for you to have your brother's wife."
+6:19 And Herodias had a grudge against him, and wanted to kill him. But she could not,
+6:20 for Herod feared John, knowing that he was a righteous and holy man, and he protected him. When he heard him, he was greatly perplexed; and yet he liked to listen to him.
+6:21 But an opportunity came when Herod on his birthday gave a banquet for his courtiers and officers and for the leaders of Galilee.
+6:22 When his daughter Herodias came in and danced, she pleased Herod and his guests; and the king said to the girl, "Ask me for whatever you wish, and I will give it."
+6:23 And he solemnly swore to her, "Whatever you ask me, I will give you, even half of my kingdom."
+6:24 She went out and said to her mother, "What should I ask for?" She replied, "The head of John the baptizer."
+6:25 Immediately she rushed back to the king and requested, "I want you to give me at once the head of John the Baptist on a platter."
+6:26 The king was deeply grieved; yet out of regard for his oaths and for the guests, he did not want to refuse her.
+6:27 Immediately the king sent a soldier of the guard with orders to bring John's head. He went and beheaded him in the prison,
+6:28 brought his head on a platter, and gave it to the girl. Then the girl gave it to her mother.
+6:29 When his disciples heard about it, they came and took his body, and laid it in a tomb.
+
+In the texts today, we hear stories of stories about the consequences of going against powerful people and institutions.  In the last 100 years, I don’t think there are a lot better retellings of that kind of story than 1939’s Columbia pictures masterpiece “Mr. Smith Goes to Washington,” directed by Frank Capra.  For those of who don’t know a whole lot about the movie, it is about 
+
+> an idealistic scoutmaster, Jefferson Smith… improbably chosen to fill an interim Senate vacancy from a graft-ridden western state. In Washington, D.C., the gawky young legislator gazes with awe on the monuments and symbols of the nation’s democratic heritage, while he becomes an object of ridicule from his worldly Senate colleagues and a cynical press corps… Smith’s plan to build a national boys’ camp on wilderness land in his home state comes into conflict with the political boss who runs the state and schemes to build a dam on the same site. Smith is devastated when learns that his senior colleague, Senator Joseph Paine, whom he idolizes, is in on the crooked deal. Slandered by Paine, ruined, and about to be tossed from the Senate, Smith finds solace and strength (and Saunders’ support) at the Lincoln Memorial and launches a one –man Senate filibuster.[^1]
+ 
+I want to play a clip from what is the ultimate moment where Mr. Smith is ending his filibuster.  He also looks right at Senator Paine. (THERE WILL BE A 3:14 CLIP RIGHT HERE).
+
+This is the hope woven into the stories of our lives, isn’t it?  That even the smallest hero will win over the day with passion and truth and lives will be changed - driven to their own moment of honest consideration.  That while power can lead to corruption, there are those who can speak in the halls of power to bring it to account!
+
+But what would have happened if Mr. Smith _hadn’t_ been successful?  What if Senator Paine hadn’t admitted his wrong doing?  What if Smith had been expelled form the Senate, forced to go back home.  That’s not necessarily a story that heals, but one that wounds.  A story that sounds almost precisely like our Old Testament passage today. [^2]  
+
+Amos was a self-proclaimed fig farmer and rancher from Tekoa, which was a town in Judah, the southern kingdom.  He tells us in the passage we heard today that he is simply minding his business, tending to his flocks, when God said to go and prophesy.  And so he begins his journey, denouncing the sinful behavior of the people, calling them to repentance - greed and luxury had gotten the best of them, for when Amos was prophesying, it was the height of the luxury and power of the kingdoms.
+
+In the major confrontation in Amos, we find him at the temple in Bethel - at the time the governmental center of the kingdom - and speaking with Amaziah, a high-priest of Israel.   In this culmination moment, we find that all of the prophesy against the people on God’s behalf falls on deaf ears - only the political dimension of Amos’ threats is mentioned, as though all of the cries for justice for the poor are insignificant.  This becomes even more clear when Amaziah tells Amos that he may not prophesy in Beth-el because it is royal sanctuary and national temple. This irony should not be easily lost on the reader, as the politically appointed representative of God explains that literally “the house of God” was “completely under the control of the monarchy, its affairs are conducted in accordance with the requirements of national politics than religious propriety, with the consequence that those whom God has commissioned to prophesy are forbidden to speak there.” In wealthy Israel, there is no room for God.  When Mr. Amos went to Beth-el, he failed.
+
+But, we may argue, at least Amos had volition - he could go to the halls of power, and he was able to go home.  Not so with John.  In his story we are forced to pull up our Scriptural rose colored glasses and witness a scene rife with some of the worst of this world, but perhaps more than anything, we sense the pure hubris of Herod, someone who would choose to pursue what he thought was best in his own eyes - marry whom he wanted, though it was against Jewish custom at the time, and what spurned John to call out Herod, ultimately landing him in jail.  It was also this hubris that caused him to promise whatever his daughter asked.  When Mr. John went to the halls of power, it cost him his life.
+
+These two stories in conversation with one another paint a painful, dour picture of the Scriptures.  Many of us from time to time have been in Amos’ shoes, and we know the stories of even today throughout the world people are put to death based on the hubris of those in power.  This is not the Christianity I signed up for.  I prefer a peaceful, safe version; one that everyone agrees with. The one that answers all of my questions easily - I pray enough and everything I want is given to me.  Prosperity abounds.  Or, even, this isn’t the Christianity I signed up for because I know that the God is a God of justice, and so if I fight hard enough, this justice will happen right now.  Either way, the outcomes of my actions to success because God, is on my side.  This kind of faith though - a type that fails, that wounds, that destroys - it makes me want to throw my hands up and ask what’s it all for?  
+
+But somewhere, of course, my wounds still ache.  The times that I know that I’ve been more Amaziah than Amos, more Herod than John.  The times I have been rejected by the Amaziah’s in the world.  That these stories are far more true to the experiences in this world than the ones that seem to fill stadiums.  And that incongruity between brokenness and its dismissal causes the wounds in me to throb and become unrelenting, and reminds me that I am not well.  That I am in need of healing.  
+
+Our balm lies not in the rise and fall of the circumstances around us, but instead in the reality that God is sovereign. A God who chose Jesus Christ before history, and in choosing Jesus Christ chose us as well.[^3]  When we read Ephesians, we hear Paul explore this concept.  We don’t hear a roadmap to success here on earth - at least how we may define it: we successfully get our scout camp, we lose 50 pounds, get a new job, don’t get ill.  Instead, we are given a promise of being adopted, chosen before we even existed, to live in grace, and hope, and faithfulness - that we are loved no matter what.  This is “whatever my lot/thou hast taught me to say/it is well, it well with my soul.” 
+
+The truth of our call as Christians, following Jesus Christ as champion of the lost causes, is that it is not an issue of success or failure, but instead of continued faithfulness.  God’s sovereignty and God’s hold on the course of history is far larger than us.  When we hear Paul speak of the “fullness of time,” we don’t know when that is, only _that_ it is.  The arc of history truly does bend towards justice, even if its curvature is just beyond our horizon.  
+
+But on occasion, even within these painful passages, we enjoy the benefit of a lofted view: though Amos’ words of prophesy did not change the course of Israel, its destruction still occured.  And even when the kingdoms were destroyed, God was still faithful to the people as they were in exile.  Though John was killed for completely meaningless and vapid political reasons, Jesus still ministers - God’s planned still unfolded.  And even though Jesus died, he was resurrected.  Our “for what?” is our faithfulness to this moment, and trust in a sovereign God’s forever faithfulness to the people.
+
+In fact, we need to go no further than the church itself.  The church has survived oppression, and has survived becoming the state religion.  It has survived war and schism, destruction and resurrection, lynching and scandal, and it is still here.  It survives financial disaster.  It even survives the flames of the arsonist: all wounds of the reality of a world that chooses graft and political power over the ones who have no way to even come to the halls.  We did not make it nearly 200 years as a church on our own view, with nothing but peaceful streams.  Through it all it is not our ability to achieve what is only God’s to perform.  Instead, it’s showing up the next day, championing the lost - but holy - cause, remembering that God is who God is, and will always be who God is.   
+
+So as we continue to walk together, two by two, in community, amongst the signposts of a God who has chosen Jesus Christ and has chosen us, let us be clear eyed that things are gonna be hard at times.  We might struggle.  We were never told we might not.  But I want to do it together, knowing that no matter what, God is who God is.  God chose to be in relationship with us.  And this truth, dear brothers and sisters, will never change.  Amen.  
+
+[^1]:	https://www.loc.gov/programs/static/national-film-preservation-board/documents/mr\_smith.pdf
+
+[^2]:	For any of you that may be reading/listening to these after Sunday, I had written an in-depth exegetical paper on Amos, revolving around 2:6, as well as the passage we’re reading today.  You can find at awra.me/at-the-desk, under the title “Ideographs”.
+
+[^3]:	This is one of the major themes within Karl Barth’s work.

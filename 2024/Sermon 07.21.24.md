@@ -1,0 +1,38 @@
+- It's become a bit of an annual tradition now, but this week the family went together to Camp Montgomery.  Lindsey was the camp nurse and I was the camp pastor. 
+- We spent the week on the theme "Linked By Love."  We saw how love transcends difference.  We talked about God's perfected love, and in Bible Studies, we explored I Cor 13 and all it's checklists of what love is and what it isn't.
+- When we decided to take on Esther for the month, we wanted to have some kind of complimentary gospel as well, and what made sense was the final discourse of Jesus with the disciples.
+	- Jesus indicates that he won't be around any more... as David noted so well last week, Esther is unique because God is not mentioned.  So there's a parallel here - what do we do when God doesn't seem around?
+	- Jesus also prays for his disciples in a way that builds on the previous discourse:
+		- We talk about the joy that's in real love.
+		- We talk about the willingness to offer our "psyche" for others... that's always better thought of as our souls.  We're willing to give those up completely for the world.
+		- We also hear about how "the world" - here thought of as the society that stands opposed to God - will revile those that follow him, which is a better word than "hate," which feels too simple to get to what Jesus is saying... it's the type of countercultural love that is revolting.
+		- And in all of that, he sends them out with the promise that though he won't be there, the Spirit will be, and that God loves them (and us) the same way he loves Jesus.
+- And what links these texts then is all this kind of love on display:
+	- Mordecai's unwillingness to bow to Haman - the whole reason this all begins, is not hard to understand.  A faithful Hebrew would remember having no other gods but God - why bow to anyone else?
+	- This love and devotion is reviled by someone who is the caricature of "the world" - so insecurely devoted to himself, unable to operate but with fawning affirmation and obstinate pride.
+	- And Esther's choices - to put her heart, soul, ego, life on the line - "if I perish, I perish" for the good of the people, even when being afforded such power, is an offering of the same love Jesus talks of.
+- This all leads to an interesting question for each of the texts, and one that David posed for us last week as well: why wouldn't Esther has just taken care of things right away?  If this is the same God-love, why not just with a single stroke take care of it all?
+- To answer that, we need to think more about strategic love.
+	- This has been one of the largest guiding forces for my own heart as both a pastor and whatever bit of an armchair theologian and ethicist I am.
+		- Strategic love starts with the recognition that both as individuals and as a church insitiution, the going out matters.
+			- This is a natural inclination as well: lots of research by Pew and Robert Putnam, a sociologist at Harvard, demonstrates that people who have regular participation in religious events develop deeper social connections.
+			- Those connections lead to what we call "social capital."  As a result, folks who are more religiously involved tend to be more involved civically.  They tend to vote more, and tend to engage in their communities.
+			- It's why, for instance, again, many of the programs we've done have had civic-mindedness at their core - we are people who care, people who have relationship, and at their core, are about love that we enact in the places we've been called to steward.
+			- And each of them, while we don't necessarily come out with a particular stance, they are there - love for the least, need to offer grace to all... these principles of love made real.
+		- But that's not always valued.
+			- Story of playing kickball
+			- So what we might get back to is an idea of "neutrality"
+				- JB Metz: 'The usual presumption of an _a priori_ “neutrality” and “political innocence” is either uncritical, or deliberately veils existing political alliances.’ - no such thing as neutrality.
+				- And perhaps what we provide is something not all that meaningful… Metz: "The church is usually referred to as an organization of a backward consciousness, as the institutionalized taboo of knowledge and productive curiosity… and thus, strident critique gives way more and more to indifference or benevolent politeness – a caricature of the compassion that one brings to someone’s deathbed."
+				- We know the church that sits on the hill while people are wasting away in the valleys.  If only they’d rise up and be here… well, they’ve lost the energy to do so.
+				- And our willingness to sit as the “city on the hill” in its worst sense is damning for those who are unable get up there.  We’re making a point with our neutrality.
+				- This is even more painful for those who God seems all too silent.  
+					- Imagine what the life of the Ethiopian eunuch that we explored a couple months ago would have been had the disciples not gone out in love and had stayed in the upper room.  Imagine our lives!
+					- Imagine what the Hebrew people's lives would have been like in Esther had she remained silent!
+						- But of course, she wasn't.  She was a brilliant strategist.  
+						- Haman was a powerful figure, and being direct wasn't going to make a change.  But she set a brilliant trap, and with that, changed the course of the history for the Hebrews.
+- How do we live this strategic love?
+	- Let's be for something that saves lives.
+	- I can understand the desire for moral direction here, but how can you tell person who’s dying of thirst their folly in who they associate with?  How can you tell someone who is freezing on the side of the road that they should reassess the life choices that brought them to this point?  Even Jesus got to know “the sinners” first, much to the Pharisee’s discontent.
+	- Our ability to live strategically within and outside the culture rests in our ability to call it’s “uncritical political innocence” out and provide an alternative.  Be, like Esther and Mordecai, in the right places at the right time, and strategically make choices.  And the more we ask the questions of the culture, reflect on it through the lens of real love - the one Jesus offers, the love of God, the more we come to conclusions that become nuanced, but through the right lens.
+	- And our fire comes from here.  This Christ.  A fire, a dangerous memory of turning the world over.

@@ -1,0 +1,15 @@
+- Stop me if you've heard this one before, but what do:
+	- An incoming winter storm
+	- The death of TikTok in the US
+	- The presidential inauguration
+	- Last year's budget
+	- and today's ordination and installation of elders all have in common?
+- I started to notice this earlier this week when we were looking at last years budget
+	- I had come in thinking there was going to be a ~$20k deficit to end the year
+	- And it ended with a $6k surplus.
+	- My first reaction was to give God praise for God's faithfulness to our congregation.
+	- ...but then, I started thinking a little more, and wondered if my original presumption would have lead me to say the same thing?
+	- It seems like as faithful people we can confuse God's faithfulness with the present outcome.
+- Walk through those examples
+- Isa 43: God's already made God's promises to God's people.  But God doesn't say that the fire and the waters won't be traversed.  Instead it's a promise of being claimed.
+- Jesus didn't need to be baptized - it's faithfulness without concern of outcome.  So, Jesus also points us to the faithfulness.  

@@ -1,0 +1,29 @@
+- Over the last couple weeks, we've engaged with wisdom - we've explored how woman wisdom is yelling in the public squares, inviting us to attune our minds and hearts towards her guidance.  Last week, Jessica invited us further to see what a community led by woman wisdom could look like.
+- And today, we see what the outcomes might be of living a life with wisdom as our companion.
+- One of my favorite concepts is counterfactual thinking.  And really, in the end, if you break the word down, counterfactual thinking is the idea that we consider the "what-if's."  When writing policy, this is something you have to consider - if we were to implement something (or not implement something), then what might the future consequences be?
+- As a culture, we really seem to be enamored by this.  Think, for instance, about all of the blockbuster recent Marvel movies.  So many of them contended with the idea of the "Multiverse," which really for all intents and purposes is just a sci-fi spin on asking ourselves "What-if?"  What if Thanos the major antagonist for many of the movies, hadn't managed to snap his fingers and wipe out half of the universe's population?  That question created a film that is one of the highest grossing movies of all time.
+- And of course, we do this often, and most researchers argue that it is one of the key components to growth, reflection, and creativity.
+	- It can lead us to relief: (What if I had turned left outside the church... I might have gotten hit by a car)
+	- Or it can lead us to regret: (What if I had not eaten those week old leftovers?)
+	- But regardless, when we think about the counterfactuals, they teach us about where to go next.
+- Which all led me to wrestle with these texts differently this week... starting with an old friend of ours, Haman.
+	- If you all remember from the summer, we spent a month going through the book of Esther, and we're met with this pinnacle moment where God's people defeat their foe, but we're left with a pretty terrible ending - death and destruction, all for better or for worse hidden from us here in our lectionary text.  But even still, while we might celebrate the vanquishing of a foe, at some point, we ought to ask ourselves if we're truly okay with the death of Haman at all.
+	- So, what if - what if something had happened differently in Esther?  Could we have been spared the violence?  The genocide?
+- And moreover, let's look at the gospel as well:
+	- We need to remember that here, during this discourse, Jesus has children around him, likely one upon his lap; that he had invited to him even at the others disapproval.
+	- He is, understandably, deeply concerned about these children being cared for - his series of "what-ifs" are enough to provide us with some pretty strong language.
+	- Still, we're left with some pretty awful imagery - millstones around the neck (which would a feat to even have it happen) - cutting off limbs.
+	- But let's ask again - what if?  What is the counterfactual?
+- Remember again woman wisdom personified last week:
+	- She's reaching beyond herself, using her gifts to allow people to be their best selves, what they're made to be.
+	- Woman wisdom, calling at the gate, making the world right, is the wisdom of the counterfactual.
+	- In between the what-is and what-could-be, the Spirit creates a space for the world to become more; us more like expression of who we're made to be.
+- When we attune our ears to wisdom, work towards the world of Woman Wisdom, we can see the potential of the world of Esther and Mark redeemed.
+	- James reminds us that our prayers are saving, and our actions of reaching out to others, helping them be who they're called to be - saving them from death - are part of what a faithful community should represent.
+	- And there is *power here*, y'all: to bring up Elijah and his prayers that changed nature to a small house worshipping communities scattered abroad would have felt optimistic at best, patronizing at worst... but yet, if we believe that wisdom and the Spirit in the moments where we imagine a what-if that's better, who are we to fight against wisdom?
+	- Imagine if the prayers in Esther were towards a heart change of Haman... "a time such of this" could have been a beloved community of diverse people brought together.
+	- Imagine if the disciples, for instance, didn't worry about who was the in and out crowd, worried about the power of Christ in a different way, but didn't need to be reminded "if they're not against us, they're for us?"
+	- And imagine if, when one was ready to do harm to the most vulnerable, we worked towards bringing them back, inviting confession and grace?
+- I recognize, of course, that some of this is complicated by the brokenness of the world.  Sometimes, things cannot be saved or redeemed.  Sometimes we can't make a what-if happen.
+- But, still, friends, I want to argue that the **heart** - one attuned to believing in the wisdom of God inviting something better, the woman in faded jeans with head back in laughter, and the willingness to pray and work through the actions is what counts.  If we don't try, if we don't have a modicum of belief, we'll never see anything else - and as we saw a couple weeks ago, we know that woman wisdom will not stop us.
+- So where, friends, are you hoping for a counterfactual?  Where have you given up believing in one?  Let us keep working towards a world of wisdom, hearts full, lives changed.

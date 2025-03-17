@@ -1,0 +1,38 @@
+[[_Resources/Bible/NRSVUE/Psalms/Ps 139#1|Ps 139,1-24]] 
+
+- The issues around mental health are some of the most pressing for us as people of faith, but also for our society writ large.  
+	- Infographic
+	- There was a particularly challenging statistic towards the end of the state of mental health survey, and it was about why youth 12-17 with a depressive episode didn't seek treatment.  Better than half indicated that they were worried what people would think, and nearly half said their family, friends, or religious group would not like it if they sought treatment.
+- At the core of this is the power of stigma in our culture.
+	- While Christian doctrine asserts that God created the world and named it good, Protestants ingest and adopt modern American social norms that indicate that only _some_ of creation is good. Instead of biblical understandings that place all of creation in relationship with God and name creation as good, albeit finite, cultural definitions of createdness name the potential for economic productivity as the primary designation of human value to society. Some parts of creation, including those living with mental illnesses, are deemed “diseased,” “inferior,” and “unproductive.”
+	- And as a result, what folks will find is that they will hide their distress. But there's a tradeoff, of course - folks who are suffering and desire care are afraid to acknowledge it: and "if churches, populated by the people of God, confirm those beliefs, sufferers wonder if God feels the same way."
+- On a personal level, I've felt this, too.
+	- I had been the smart kid growing up, but on every report from my classes, it would say something like "able to think divergently, but struggles to stay on task."  So I could be in all of the advanced classes, score highly on my standardized tests, but ask me to remember to turn off the sink after brushing my teeth was a whole other thing.
+	- After college, I started to wonder if it was something else.  And so I went to a psychologist who suggested that perhaps I had ADHD, but not to worry about it because I had apparently developed coping mechanisms.
+	- But then came more - getting married, starting a family, increased responsibilities with a house and work.  Eventually, I felt my world falling apart.  I couldn't keep track of much.  I felt like a persistent and constant failure, unable to keep up with the lofty expectations that everyone had said I was capable of, coupled with a feeling that I must not be that capable of an adult if I can't even keep up on putting clothes away.
+	- It was right then that I took a second look at ADHD, and after a day long's battery of tests, it was clear that yeah, I had a moderate to severe dx of it.
+	- I started taking medication, which I've often described as finally being able to tune the static out of my radio station.  I went to a therapist who helped me with cognitive behavioral therapy - reminding me I didn't need 15 hobbies at once, but just 1.
+	- And at times what I see as the good and not so good of it
+		- It has allowed me to continue to find patterns and ideas that are hard for others and synthesize other meanings.
+		- It allows me to be fascinated by all sorts of things - I get passionate about just about everything.
+		- But, it also comes at a cost, still.  If I don't email or text right away, I can somehow forget altogether.  It has with it what's termed 'Rejection Sensitive Dysphoria,' which is just a fancy way that if I don't catch myself, I'll be convinced that you'll find me the worst pastor in Jacksonville because I made a mistake.
+	- What I've been struck by is that, if given the option, I'd rather no one really know about the diagnosis - absent minded, disorganized are such easier things to deal with because it's normal... we all have those times.  But not everyone has ADHD, and it makes me abnormal, broken.  Diagnostic labels bring some clarity, but it might also mean that there's always a risk of being named by that.
+	- And really, I don't need sympathy or to be treated differently.  I just want to be me as I am, and you as you are, and we are in community.
+- So, we need to reframe our understanding of what is and isn't stigma, and work towards something better.
+	- John Swinton definition: "the strength to live as a human being, the strength to maintain holistic relationships with God, self and creation, the strength to continue moving towards the restoration of the _imago_ _Dei_ irrespective of one’s circumstances"
+	- PS
+		- What is striking here, especially in the context we're in today, is that David recognizes that no matter where their life takes him, God will be present.  There is no depth that God will not meet him.  
+			- "Sheol" - the wasteland, the void.  God is there.
+			- v12 is interesting, because the word is more closely related to "strike" - to afflict suddenly.  
+			- But even when he is striken, David realizes that he is something special - a more direct transation of "fearfully and wonderfully made" might be I am awe inspiring and distinguished.
+			- And that realization is so deep, so expansive, that is precious - weighty, we translate.
+			- And finally, David leaves us with a plea to God - search me.  Dig deep into the roots of me.  Know me - the depths of my heart, but also my thoughts.  And not just the basic thoughts, but the things that trouble me.  The word here is only used four times in the OT - twice in Job, and twice in the Psalms.  
+		- For any of us who have gone through difficulties with our mental health, this Psalm speaks to us.  David's calling out to God meet him, wherever.  We also can understand the feelings of violence - not ideal, but in moments of pain, we are going to feel the rage.
+		- But notice - what ultimately defines David isn't any of that - not what he's going through, but instead, it is the center of this poem - being something special: the *imago Dei.*
+	- And while I don't have a gospel passage today, it's not hard to think of so many ways Jesus loved people where they were in any affliction, and brought healing.
+- In the end, our naming of the ways stigma impedes us and how we work past it is a question of hospitality.  Not necessarily in the sense like after church (although that's wonderful!) but in how we welcome the stranger.
+	- As just a starter example - are we just as willing and able to fill the fridge of someone who has just gone through cancer treatment as we would for someone who is recovering from a suicide attempt?  Do our feelings change depending on which hospital someone comes home from?
+	- It would seem to depend on two things:
+		- First, the ability for those who are suffering to feel that they can acknowledge it and not be named any other way than one of God's beloved, fearfully and wonderfully made.  Their state of mental health is no different than anything else that might afflict them.  
+		- But, we have to be a space that demonstrates that we recognized that belovedness above all else.  Even at the risk of being stigmatized another way - when Jesus is declared to be one who eats with sinners, I'm certain he didn't see it that way.  He joined with those that were stigmatized.  But we too, given how we feel about any variety of name other than belovedness in our society will perhaps have a story told of us.
+		- However, if I go back to David, what I hope for is a physical demonstration for someone struck by darkness that they are fearfully and wonderfully made, worthy of no other name.  And should I do that, what I'm doing in some small way is restoring the *imago Dei*.  I witness God more than ever.

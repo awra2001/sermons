@@ -1,0 +1,36 @@
+- Want to note that some of you might be wondering, "well, what the heck is this Wisdom of Solomon?"
+	- We would rarely read aloud a text from the lectionary that isn't part of the protestant canon.
+	- However, this one, especially coupled with Proverbs, almost seems too perfect not to hear aloud
+	- Because it describes something important to us in our texts today - that God loves the one who lives with wisdom, and here we can think of it as much as forming a community with, having a home with.
+- That might make a little more sense then when Jesus seems to go really hard at Peter here.
+	- I'm sympathetic to Peter - not the greatest marketing tactic as one is trying to grow their community to say "well, we've got everything - suffering, rejection, death... and resurrection, sure."  You might have already left by the time you got to the last one, so wild as to be considered unbelievable. 
+	- And Jesus's rebuke is always so interesting: "Get behind me, Satan.  For you are setting your mind not on divine things but on human things."
+		- The last time Jesus had a direct conversation with Satan was in the wilderness.
+		- Now, Mark's story of this is woefully short... but if we look at Matthew, what we find it is the same way he addresses Satan there, too... so, what it seems is that the tempter, the proctor, works towards the world's desires, and not on God's desires - so there is a particular urgency to avoid the broken way of looking at the world predicated on something other than God's way.
+- Speaking of going hard, it is fascinating too that in Proverbs, as we hear the first personification of woman wisdom, she really tells it like it is too:
+	- She has been trying to get everyone's attention for a long time.  She's right in the busiest places, the centers of human interaction, and it seems she's had enough.
+	- And she seems to be mindful of three different types of folks: dupes (folks who have been victims of deception), scoffers (or folks who love to mock for the sake of mocking), and fools (pretty straightforward there)
+	- You don't want to take my advice, my critique?  You want to be so filled up with your way of doing in ignorance?  Fine, she says.  I'm over it.  And don't be surprised when it all collapses on you.
+	- And then, finally, when you decide that you want to call out for me, good luck.  This is, dear friends, spiritual schadenfreude.  Wisdom will not cause calamity, but she won't feel all that bad if it happens, which she clearly assumes it will.
+	- And do you notice, too, that here, there isn't an action, really?  In the end, we're talking about their hearts; their intentions.
+	- Which all raises an interesting point - who is Wisdom ultimately addressing?  Clearly the folks she's talking about aren't going to hear her.  Instead, she's talking to those who are willing to listen for her shouts throughout the business of the square, certainly a difficult task.  She's seeking those whose ears are inclined to listen, whose hearts are open for the critique and reprooof.
+- And we feel that more often than we don't.
+	- We look about our crowded marketplaces with the supposed wisdom there, and we wonder in our hearts is that how it should be.
+	- We can hear the Petrine rebukes all over: you know, if you really want to get people on your side, really want to win over the culture, you got to show folks power.  You need to be strong.  Who cares about the tired, the poor, the masses yearning to breathe free?  Tell only some of the truth in slant.  Mock, deride, belittle.
+	- And Jesus speaks the words of Woman Wisdom - you can keep your bellies full on all of that, but it will fail you.  But, if you want something worthwhile, an image of God's goodness - a view of the world being renewed - then you'll have to let all of it go. 
+	- And it's not about, really, the actions.  But it's about the heart.
+	- Because in that heart change, there's a thread in each of our texts today... do you see it?
+		- "...but who heeds me will dwell secure and tranquil from the fear of harm."
+		- "... she reaches mightily from one end of the earth to the other, and she orders all things well."
+		- "...what will it profit them to gain the whole world and forfeit their (soul)?  Indeed, what can they give in return for their (soul)?"
+	- What we find, at the end of it all, is the promise of resurrection - of life overcoming the stumbling slouch towards death.  Our God is trying to shout and wave and shock us out of that torpor to something so much fuller, richer, and the mirror of Godself.  The wisdom of God, at times antithetical to the world's foolishness, might hurt us for a time.  But it won't win the day.  It won't be overcome by God's way.  But, if we want, God won't get in our way to be duped, to scoff, to be a fool.
+- So, how do we make a housemate of wisdom? 
+	- We'll dig into more next week for the practical, but I want to focus on the heart.
+	- How do we help amplify the voice of wisdom, to help it rise above the rest of the noise in a crowded marketplace?
+	- Because the things our world prescribes as foolishness might be precisely the things that Woman Wisdom is shouting for - a world being restored.
+	- And to shout them from a heart that seeks wisdom... and I think we just simply need to go back to the same saints that Woman Wisdom connects to each of us, who speak her voice
+		- Of Elizabeth Ann Seton who gave herself - her wealth, her station - to care for orphans
+		- Of Dorothy Day who spoke on behalf of those who were in squalid poverty and spoke truth to power
+		- Of Thomas Merton, who reminds us that "**We do not find the meaning of life by ourselves alone - we find it with another**. You do not need to know precisely what is happening, or exactly where it is all going."
+		- Each of these saints saw the world's wisdom and realized it was a dupe.  And though they might have been criticized, they gave of themselves.  And these are just three from the last couple centuries... there have been countless others, famous or otherwise.
+		- Because friends, if it's about the heart, then it only takes one.  It only takes one voice to join with Wisdom.  One heart, one voice, joins with another.  And, maybe, just maybe, we find the life we're seeking, the culture we dream of... we find the image of God mirrored and bringing right order.
