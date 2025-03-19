@@ -1,3 +1,5 @@
+#copreaching
+
 **I love Christmas. I love everything about it, the warm cozy magic of it. There’s the lights and the decorations – I live in Avondale, and the luminaria is just the most magical night in our neighborhood. I love the wintery images of softly falling snow, even if here in Florida I don’t ever get to actually walk in that snow. I love curling up by the fireplace with a mug of tea and a book. I love every Christmas song ever written – except the Paul McCartney one (sorry friends). As far as I’m concerned, I cannot hear Mariah Carey sing  “All I Want for Christmas is You” enough times in December. I absolutely watched her Christmas special a couple of years ago. And I love a good Christmas movie, from the classics to the cringey. My mom and I have ordered matching White Christmas themed sweatshirts this year. I have watched all the Christmas Princess movies on Netflix. Give me a hallmark Christmas movie with it small town feels and cozy Christmas baking and city woman falls for failing innkeeper vibes, and I am here for every bit of it.**
 
 Use TikTok Video Here
